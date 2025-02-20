@@ -1,5 +1,6 @@
 # İnat BOX
 
+![1500x500_2](https://github.com/user-attachments/assets/5d430a11-68c7-434b-851a-3b9d90d909b6)
 
 İnat BOX, Orijinal İnat BOX İndir
 
@@ -10,6 +11,5 @@
 İnat TV orijinal dosyalarını buradan veya kendi sitesinden indirebilirsiniz. Kendi sitesine X platformu üzerinden veya mailden ulaşabilirsiniz. 
 İnat TV Twitter (X) - https://x.com/inattvapk
 İnat TV Mail - inattvapk@gmail.com
-
 
 inat tv, inat tv indir, inat tv linki ve orijinal inat tv uygulamasına buralardan ulaşabilirsiniz.
