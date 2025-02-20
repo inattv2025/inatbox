@@ -1,6 +1,6 @@
 # İnat BOX
 
-![1500x500_2](https://github.com/user-attachments/assets/5d430a11-68c7-434b-851a-3b9d90d909b6)
+![inat tv](https://github.com/user-attachments/assets/5d430a11-68c7-434b-851a-3b9d90d909b6)
 
 İnat BOX, Orijinal İnat BOX İndir
 
@@ -12,4 +12,8 @@
 İnat TV Twitter (X) - https://x.com/inattvapk
 İnat TV Mail - inattvapk@gmail.com
 
-inat tv, inat tv indir, inat tv linki ve orijinal inat tv uygulamasına buralardan ulaşabilirsiniz.
+## İnat tv, inat tv indir, inat tv linki ve orijinal inat tv 📺
+
+### ***[İnat BOX İndir](https://github.com/inattv2025/inatbox/raw/refs/heads/main/inat-box-v14.apk)***
+
+### ***[İnat TV PRO İndir](https://github.com/inattv2025/inatbox/raw/refs/heads/main/inat-tv-pro-v21.apk)***
