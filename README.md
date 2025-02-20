@@ -12,7 +12,7 @@
 İnat TV Twitter (X) - https://x.com/inattvapk
 İnat TV Mail - inattvapk@gmail.com
 
-## İnat tv, inat tv indir, inat tv linki ve orijinal inat tv 📺
+## İnat tv, inat tv indir, İnat BOX indir, inat tv linki ve orijinal inat tv 📺
 
 ### ***[İnat BOX İndir](https://github.com/inattv2025/inatbox/raw/refs/heads/main/inat-box-v14.apk)***
 
